@@ -24,6 +24,6 @@ I also like how the story keeps me interested because of its unpredictable event
 3. The dark and intense atmosphere
 4. The psychological conflict between the main characters
    
-**Movie Rating:** `9.5/10`
+###**Movie Rating:** `9.5/10`
 
 
